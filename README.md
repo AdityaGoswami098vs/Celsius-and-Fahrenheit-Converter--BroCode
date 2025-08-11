@@ -1,0 +1,1 @@
+Going really great, First time I'm feeling confident working with JS, and doing many things all by MySelf, 3 hourrs in and this 3 hours takes me 2.5 days means lots of coding, not just, watching tutorials and questioning, what tf am I doing? at this speed definitely gonna land a job in under a Year.
